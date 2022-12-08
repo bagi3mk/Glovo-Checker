@@ -9,3 +9,6 @@ Golovo Site Accounts Checker | https://business.glovoapp.com/
 3- Enter Combo File Name
 
 4- Wait For Results (: .
+
+
+# If you encounter any problem or have any question, do not hesitate to contact me on Telegram https://t.me/laksis 24Hr .
